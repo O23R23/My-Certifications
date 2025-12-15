@@ -10,3 +10,6 @@ ICT Word Processing Essentials, February 8, 2024
 ICT Gaming Essentials, March 25, 2025
 
 ICT Communications Essentials, March 07, 2024
+
+ICT Digital Citizenship & Ethics, April 01, 2025
+
