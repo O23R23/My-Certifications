@@ -13,4 +13,4 @@ ICT Communications Essentials, March 07, 2024
 
 ICT Digital Citizenship & Ethics, April 01, 2025
 
-Certiport Entrepreneurship and Small Business
+Certiport Entrepreneurship and Small Business, December 11, 2024
